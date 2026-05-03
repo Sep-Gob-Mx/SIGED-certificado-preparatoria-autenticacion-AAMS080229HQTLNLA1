@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AAMS080229HQTLNLA1
+AAMS080229HQTLNLA1
